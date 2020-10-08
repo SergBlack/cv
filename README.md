@@ -1,1 +1,1 @@
-https://SergBlack.github.io/cv/cv
+https://SergBlack.github.io/cv
