@@ -1,1 +1,1 @@
-https://SergBlack.github.io/rsschool-cv/
+https://SergBlack.github.io
